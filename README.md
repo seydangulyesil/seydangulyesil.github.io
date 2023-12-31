@@ -1,0 +1,1 @@
+# seydangulyesil.github.io
